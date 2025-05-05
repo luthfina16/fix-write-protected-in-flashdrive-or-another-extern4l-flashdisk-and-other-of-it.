@@ -1,1 +1,1 @@
-for not always flashdisk like sandisk cruizer.
+for not always buy flashdisk like sandisk cruizer.
